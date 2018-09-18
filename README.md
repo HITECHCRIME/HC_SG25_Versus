@@ -5,14 +5,6 @@ Hitech Crime Single 'Versus'
 https://www.youtube.com/watch?v=56nInDUk9AI
 Collab with Ciociacaro. I'm the bad guy and she's the bad girl - we clash and attack lyrically each other.
 
-**Lyrics**
-
-Fucking it up my mind
-Fucking it up my mind
-Fucking up my mind
-Fucking up my mind
-Time for you to shine
-Time we settle this and die
 
 **CHORUS**
 0:25
@@ -37,3 +29,11 @@ moja miłość w tobie spłonie
 ale z tobą nigdy nie jest prosto
 
 
+**Lyrics**
+
+Fucking it up my mind
+Fucking it up my mind
+Fucking up my mind
+Fucking up my mind
+Time for you to shine
+Time we settle this and die
