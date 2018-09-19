@@ -10,6 +10,8 @@ Collab with Ciociacaro. I'm the bad guy and she's the bad girl - we clash and at
 0:25
 "kurwa znowu to samo"
 
+(yau)
+
 rzucasz że jestem chujem
 rzucasz że jestem gnidą
 ale próbuję (ej)
