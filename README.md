@@ -12,7 +12,7 @@ Collab with Ciociacaro. I'm the bad guy and she's the bad girl - we clash and at
 
 rzucasz że jestem chujem
 rzucasz że jestem gnidą
-ale próbuję
+ale próbuję (ej)
 
 duszę znów swą rozrywam 
 to dla ciebie lecz na próżno
@@ -22,7 +22,7 @@ brudnymi myślami ale z sercem czystym
 nadal ze mnie cham, chyba ze sobą nie gramy 
 
 chcesz nas znowu zniszczyć ostro
-no to jebnij mi w twarz co myślisz o mnie
+no to jebnij mi w twarz co myślisz o mnie (ej)
 zanim krzyknę kocham i chcę 
 moja miłość w tobie spłonie
 
