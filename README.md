@@ -28,6 +28,16 @@ no to jebnij mi w twarz co myślisz o mnie (ej)
 zanim krzyknę kocham i chcę 
 moja miłość w tobie spłonie
 
+
+
+
+
+
+
+
+
+
+
 ale z tobą nigdy nie jest prosto
 
 
