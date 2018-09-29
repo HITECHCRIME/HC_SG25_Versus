@@ -2,7 +2,9 @@
 Hitech Crime Single 'Versus'
 
 **Concept**
-https://www.youtube.com/watch?v=56nInDUk9AI
+https://www.youtube.com/watch?v=56nInDUk9AI - DISCOVERY PROD. CLOVER
+
+SUICIDE BOYS TYPE BEAT - "CHILLS" | PROD. CLOVER
 Collab with Ciociacaro. I'm the bad guy and she's the bad girl - we clash and attack lyrically each other.
 
 
